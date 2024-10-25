@@ -1,1 +1,0 @@
-# DASC-In-Case-You-Got-Accidentally-Community-Punished-Are-18-Older-
